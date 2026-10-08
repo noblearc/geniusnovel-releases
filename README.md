@@ -1,0 +1,1 @@
+Genius Novel auto-update releases
